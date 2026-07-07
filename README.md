@@ -2,4 +2,5 @@
 
 ![](https://github.com/SweetSerialPrincess/Call-me-by-your-name/blob/main/1000001912-removebg-preview.png)
 
-![](https://github.com/SweetSerialPrincess/SweetSerialPrincess/blob/main/d3897f018c65f0e705bb99fd6675f70e.gif)
+[__SIGN MY ATABOOK__](https://callmebyourname.atabook.org/)
+[__SPOTIFY__](https://short-url.cc/1yG7N)
