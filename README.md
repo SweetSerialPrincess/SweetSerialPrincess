@@ -7,4 +7,4 @@
    [ **SUMMER PLAYLIST**](https://short-url.cc/1yG7N) **TYSM**
 
 
-![](https://github.com/SweetSerialPrincess/SweetSerialPrincess/blob/main/cf41d2bbc9101a2ee0a84366a32d5d56.gif)
+![](https://github.com/SweetSerialPrincess/SweetSerialPrincess/blob/main/1000002020-removebg-preview.png)
