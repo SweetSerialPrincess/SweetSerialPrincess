@@ -1,11 +1,10 @@
 ![](https://github.com/SweetSerialPrincess/SweetSerialPrincess/blob/main/d3897f018c65f0e705bb99fd6675f70e.gif)
 
-
 ![](https://github.com/SweetSerialPrincess/Call-me-by-your-name/blob/main/1000001912-removebg-preview.png)
 
-**CHECK MY**
+**SIGN MY**
   [__ATABOOK__](https://callmebyourname.atabook.org/
-) **AND**
+) **AND** **LISTEN TO MY**
    [ **SUMMER PLAYLIST**](https://short-url.cc/1yG7N) **TYSM**
 
 
