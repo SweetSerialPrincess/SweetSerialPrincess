@@ -3,4 +3,7 @@
 ![](https://github.com/SweetSerialPrincess/Call-me-by-your-name/blob/main/1000001912-removebg-preview.png)
 
 [__SIGN MY ATABOOK__](https://callmebyourname.atabook.org/)
-[__SPOTIFY__](https://short-url.cc/1yG7N)
+
+
+
+[__ MY SUMMER PLAYLIST__](https://short-url.cc/1yG7N)
